@@ -17,7 +17,7 @@ Refletem a alegria da chegada de Jesus ao mundo. 🌟
 
 ---
 
-🌿 **Mistérios Dolorosos** (Terças e Sextas)
+**🌿 Mistérios Dolorosos** (Terças e Sextas)
 Nos fazem lembrar o sofrimento de Jesus por amor a nós.
 
 1. 😢 *A Agonia no Horto* – Jesus reza e sua suor se transforma em sangue.

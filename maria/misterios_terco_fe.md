@@ -50,7 +50,7 @@ Iluminam momentos importantes da vida pública de Jesus. 💡
 
 ---
 
-🙏 **Dica de Oração com Fé**:
+**Dica de Oração com Fé 🙏**:
 Comece com o Sinal da Cruz ✝️, reze o Credo, um Pai Nosso, três Ave-Marias e um Glória. Em seguida, a cada dezena, medite um mistério e reze um Pai Nosso, dez Ave-Marias e um Glória.
 
 Rezar o terço é como segurar a mão de Maria e deixar que ela nos leve mais perto de Jesus. Confie, entregue, e reze com o coração. 💖

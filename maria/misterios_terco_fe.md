@@ -9,11 +9,11 @@ Rezar o terço é como caminhar com Maria pelos momentos mais importantes da vid
 🌟 **Mistérios Gozosos** (Segundas e Sábados)
 Refletem a alegria da chegada de Jesus ao mundo.
 
-1. 😇 *A Anunciação* – O anjo Gabriel anuncia a Maria que ela será mãe de Jesus.
-2. 🤰 *A Visita de Maria a Isabel* – Maria visita sua prima Isabel, que também está grávida.
-3. 👶 *O Nascimento de Jesus* – Jesus nasce em Belém, o Salvador chegou ao mundo.
-4. 🏛️ *A Apresentação de Jesus no Templo* – Maria e José apresentam o Menino no templo.
-5. 🧒 *O Encontro de Jesus no Templo* – Aos 12 anos, Jesus é encontrado entre os doutores.
+1. *A Anunciação* – O anjo Gabriel anuncia a Maria que ela será mãe de Jesus.
+2. *A Visita de Maria a Isabel* – Maria visita sua prima Isabel, que também está grávida.
+3. *O Nascimento de Jesus* – Jesus nasce em Belém, o Salvador chegou ao mundo.
+4. *A Apresentação de Jesus no Templo* – Maria e José apresentam o Menino no templo.
+5. *O Encontro de Jesus no Templo* – Aos 12 anos, Jesus é encontrado entre os doutores.
 
 ---
 

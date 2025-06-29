@@ -6,7 +6,7 @@ Rezar o terço é como caminhar com Maria pelos momentos mais importantes da vid
 
 ---
 
-**Mistérios Gozosos** (Segundas e Sábados)
+## Mistérios Gozosos (Segundas e Sábados)
 Refletem a alegria da chegada de Jesus ao mundo. 🌟
 
 1. *A Anunciação* – O anjo Gabriel anuncia a Maria que ela será mãe de Jesus. 😇
@@ -17,7 +17,7 @@ Refletem a alegria da chegada de Jesus ao mundo. 🌟
 
 ---
 
-**Mistérios Dolorosos** (Terças e Sextas)
+## Mistérios Dolorosos (Terças e Sextas)
 Nos fazem lembrar o sofrimento de Jesus por amor a nós. 🌿
 
 1. *A Agonia no Horto* – Jesus reza e sua suor se transforma em sangue. 😢
@@ -28,7 +28,7 @@ Nos fazem lembrar o sofrimento de Jesus por amor a nós. 🌿
 
 ---
 
-**Mistérios Gloriosos** (Quartas e Domingos)
+## Mistérios Gloriosos (Quartas e Domingos)
 Celebram a vitória de Jesus e a glória do céu. 🌈
 
 1. *A Ressurreição de Jesus* – Jesus ressuscita no terceiro dia. 🌅
@@ -39,7 +39,7 @@ Celebram a vitória de Jesus e a glória do céu. 🌈
 
 ---
 
-**Mistérios Luminosos** (Quintas-feiras)
+## Mistérios Luminosos (Quintas-feiras)
 Iluminam momentos importantes da vida pública de Jesus. 💡
 
 1. *O Batismo de Jesus* – João Batista batiza Jesus no Jordão. 🌊

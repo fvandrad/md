@@ -6,19 +6,19 @@ A espiritualidade mariana é um convite a viver como Maria: com fé, humildade, 
 
 ---
 
-**Fé e Confiança**
+## Fé e Confiança
 Maria acreditou nas promessas de Deus, mesmo sem entender tudo. Sua confiança é exemplo para quem deseja caminhar com Deus. 🙏
 
-**Humildade e Simplicidade**
+## Humildade e Simplicidade
 Maria viveu de forma simples, colocando-se sempre a serviço. Sua humildade nos ensina a valorizar o essencial. 🌱
 
-**Escuta e Obediência**
+## Escuta e Obediência
 Maria soube ouvir a Palavra de Deus e responder com um "sim" generoso. Ela nos inspira a escutar e obedecer à vontade divina. 👂
 
-**Oração e Contemplação**
+## Oração e Contemplação
 Maria guardava e meditava tudo em seu coração. A oração é o segredo de sua força e serenidade. 🕊️
 
-**Serviço e Caridade**
+## Serviço e Caridade
 Maria foi ao encontro de Isabel e está sempre pronta a ajudar. Sua espiritualidade é marcada pelo amor ao próximo. 🤲
 
 ---

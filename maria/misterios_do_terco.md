@@ -20,7 +20,7 @@ Refletem a alegria da chegada de Jesus ao mundo. 🌟
 ## Mistérios Dolorosos (Terças e Sextas)
 Nos fazem lembrar o sofrimento de Jesus por amor a nós. 🌿
 
-1. *A Agonia no Horto* – Jesus reza e sua suor se transforma em sangue. 😢
+1. *A Agonia no Horto* – Jesus reza e seu suor se transforma em sangue. 😢
 2. *A Flagelação de Jesus* – Jesus é cruelmente chicoteado. 🏃
 3. *A Coroação de Espinhos* – Colocam uma coroa de espinhos em Jesus. 👑
 4. *Jesus Carrega a Cruz* – Ele leva a cruz até o Calvário. 🪓
